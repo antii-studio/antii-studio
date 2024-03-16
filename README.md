@@ -1,2 +1,2 @@
 - antii-studio
-- discord - @7471
+- discord - @.antii._
